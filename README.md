@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Viorik1985
+Xiaomiredmi12vio@gmail.com - 👋 Hi, I’m @Viorik1985
 - 👀 I’m interested in earnings. 
 - 🌱 I’m currently learning developing  
 - 💞️ I’m looking to collaborate on market. 
